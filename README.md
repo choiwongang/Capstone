@@ -1,1 +1,8 @@
-# Capstone
+![image](https://github.com/choiwongang/Capstone/assets/83582669/8d432eb4-61de-401b-9a44-ca0779b6202c)
+![image](https://github.com/choiwongang/Capstone/assets/83582669/c62c3452-513a-475f-b43a-fa3193b0f9d4)
+![image](https://github.com/choiwongang/Capstone/assets/83582669/b7260f7b-63a7-433e-83b0-f16072e46f2a)
+![image](https://github.com/choiwongang/Capstone/assets/83582669/57cada80-a317-4b92-bce8-97cfa2269d25)
+![image](https://github.com/choiwongang/Capstone/assets/83582669/3efdfb67-51bd-40b2-8eb5-3bf21f59f927)
+![image](https://github.com/choiwongang/Capstone/assets/83582669/5d6598e4-5c36-4a19-84d7-b4e63c64c59c)
+![image](https://github.com/choiwongang/Capstone/assets/83582669/45353d95-dbd3-4c36-9a12-f09250b875b0)
+![image](https://github.com/choiwongang/Capstone/assets/83582669/96c7e444-aeb3-42f3-8a0f-df7b6c4b9138)
